@@ -1,6 +1,6 @@
 - 👋 Hi, I’m EVR
-- 👀 I’m interested in Computer Aided Designs in Electrical Engg.
-- 🌱 I’m currently learning my Initial Codes.
+- 👀 I’m interested in Big Bang Theory.
+- 🌱 I’m currently learning something.
 - 💞️ I’m looking to collaborate on NOTHING as of now.
 - 📫 How to reach me ... Unreachable
 
